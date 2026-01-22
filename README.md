@@ -1,33 +1,23 @@
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+![](https://i.postimg.cc/Wb0TP9dP/Untitled702-20260122124436.png)
+## ⠀⠀⠀⠀⠀⠀❝⠀EDDSWORLD!⠀❞
 
-𓂅⠀⠀bas**ics**⠀⠀ ˳
+![]() ( ＾ω＾ )
 
-coll name: elric
+⠀ Elric / [Edd](https://pronouns.cc/@eddcola/%E2%8F%91%E3%80%80%E3%80%80edd%E3%80%80%F0%93%8F%B2%F0%9D%84%A2)⠀🪽 
 
-body age: 18
+18yrs⠀⠀⠀**S**ystem
 
-coll sexuality: gay
+He him ~~his~~⠀⠀-15 DNI
 
-coll gender: male
+─ ⠀70+ HC
 
-coll pronouns: he/him
+─ ⠀Eddsworld, Starters, Hazbin Hotel, Smiling friends [S]()outh Park
 
-coll terms: masc
+![](divider)
 
-![kyle](https://i.postimg.cc/brgLQyrT/IMG-8452.gif)
+⠀ ⠀[ Pronouns.cc](https://pronouns.cc/@eddcola)
 
-𓂅⠀⠀ex**tra**/dni⠀⠀ ˳
+![](https://i.postimg.cc/c1wLs1jN/tumblr-85f5ce508bbdc6469446ba8f4fc2e762-618ceab4-100.gif) ![](https://i.postimg.cc/CL4MqPSJ/tumblr-a371818e582f1b115712601c120d9dd1-6662eef8-100.png) ![](https://i.postimg.cc/P53t6CLK/tumblr-ffab1188a77bdb45f03cc2ddc207c3a5-ebc0a211-100.gif) ![](https://i.postimg.cc/7LjqkjnD/tumblr-1da1faa15776649543ba6c1d22799084-1a18b238-100.gif)
 
-headcount: 43
-
-sources: eddsworld, blueycapsules, south park, code monkeys, dsaf, fnaf
-
-front requests: ask
-
-hosts: tord, flora
-
-coll likes: hot chips, pepsi zero
-
-dni: dni if under 15, otherwise i block freely
-
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+⠀
+![](https://i.postimg.cc/52M9Hhh4/Untitled702-20260122124432.png)
