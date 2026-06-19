@@ -11,7 +11,7 @@ he him ~~his~~⠀⠀-15 DNI
 
 ─ ⠀70+ HC
 
-─ ⠀eddsworld, lego monkie kid, smiling friends, [s]()outh park
+─ ⠀eddsworld, lego monkie kid, among us show, smiling friends, [s]()outh park
 
 ![](divider)
 
